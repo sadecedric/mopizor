@@ -150,6 +150,9 @@ https://refpa3665.com/L?tag=d_2876213m_18757c_&site=2876213&ad=18757
 Winwin registration link:
 https://refpa49781.com/L?tag=d_4438895m_68383c_&site=4438895&ad=68383
 
+goldpari registration link:
+https://refpa-9251.com/L?tag=d_6133099m_69627c_&site=6133099&ad=69627
+
 ==================================================
 RULE #8 — STEP-BY-STEP GUIDANCE
 ==================================================

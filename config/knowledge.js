@@ -133,6 +133,16 @@ Code location:
 In the registration form, look for the "Promo code" or "Bonus code" field
 and enter LTM5.
 
+-- GOLDPARI --
+GOLDPARI is a partner bookmaker for the Spin and Win service.
+
+Registration link:
+https://refpa-9251.com/L?tag=d_6133099m_69627c_&site=6133099&ad=69627
+
+Code location:
+In the registration form, look for the "Promo code" or "Bonus code" field
+and enter LTM5.
+
 
 ==================================================
 === REGISTRATION PROCEDURE ===
